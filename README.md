@@ -14,7 +14,7 @@ I always hated New Years Eve. "What's the point? It's just another day." However
 Although I was never allowed to partake in traditional Georgian ceremonies... their obsession changed me. 
 
 Therefore, I cannot drag this into 2022. And as trashy as this is, I also cannot throw it away, because I know how it feels to throw away music. 
-Science only knows how many compositions & recording I have thrown away... for example: would any of you believe me that I played 
+Science only knows how many compositions & recording I have thrown away... for example: would any of you believe that I played 
 "Somewhere Over The Rainbow" arranged by Max Seide Leth?? 
 
  --------------------------------------------------------------------
